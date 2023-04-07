@@ -1,1 +1,1 @@
-# chatgptpro.website
+# https://wangzimo.top/chat/index.html
